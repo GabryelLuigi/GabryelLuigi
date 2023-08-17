@@ -3,4 +3,4 @@
 
 
 
-![](https://tenor.com/pt-BR/view/sleepy-tired-duckling-gif-3769376)
+![](https://media.tenor.com/BdS6KadQDDYAAAAC/sleepy-tired.gif)
